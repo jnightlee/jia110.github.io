@@ -6,7 +6,6 @@
 		
 		3.最近在白嫖付费机场线路,点击关于查看 请合理使用 否则永久拉黑 禁用 (以后别想白嫖了)
 		
-		4.QQ 791586916 
 
 [![Page Views Count](https://badges.toozhao.com/badges/01F0YSGVZCGSDYX9RAEE2PMGBY/green.svg)](https://badges.toozhao.com/stats/01F0YSGVZCGSDYX9RAEE2PMGBY "Get your own page views count badge on badges.toozhao.com")
 
@@ -19,4 +18,3 @@ This site resources from the network, only for learning and communication use, n
 
 3. Recently, in the paid airport line of white whoring, click on about to check, please use it reasonably, otherwise it will be permanently banned (don't think of white whoring in the future)
 
-4.QQ 791586916
